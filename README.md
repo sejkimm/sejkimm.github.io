@@ -1,1 +1,1 @@
-# sejkimm.github.io
+# seungjong.kim on GitHub Pages
